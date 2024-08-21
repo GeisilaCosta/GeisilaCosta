@@ -1,6 +1,5 @@
 ## Olá!! Eu sou Geisila 👋
 
-- 🌱 Estudando: Phython
 - 📫 Contacte-me pelo email: geisilascosta2@gmail.com
 - 😄 Pronouns: ela/dela
 
