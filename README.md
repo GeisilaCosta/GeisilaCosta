@@ -1,6 +1,6 @@
 ## Olá!! Eu sou Geisila 👋
 
-- 📫 Contacte-me pelo email: geisilascosta2@gmail.com
+- 📫 Contacte-me pelo email: geisilaportifolio@gmail.com
 - 😄 Pronouns: ela/dela
 
 
