@@ -1,7 +1,7 @@
 ## Olá!! Eu sou Geisila 👋
 
 - 📫 Contacte-me pelo email: geisilaportifolio@gmail.com
-- 😄 Pronouns: ela/dela
+- 😄 Pronouns: ela/dela                  
 🌐 https://gcosta.vercel.app/
 
 ###
